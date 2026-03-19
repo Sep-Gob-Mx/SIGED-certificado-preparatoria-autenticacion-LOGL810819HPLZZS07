@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-LOGL810819HPLZZS07
+LOGL810819HPLZZS07
